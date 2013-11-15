@@ -9,3 +9,5 @@ hey guys i'm keyue
 i'm actually an intelligent being
 swagggg
 we got it working
+finally!
+now we need kafilah and izzy to get on this
