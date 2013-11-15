@@ -11,3 +11,4 @@ swagggg
 we got it working
 finally!
 now we need kafilah and izzy to get on this
+its gonna be difficult
